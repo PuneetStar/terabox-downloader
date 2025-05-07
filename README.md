@@ -11,7 +11,7 @@
 
 ## Introduction
 
-> Discover the best way to **download and stream Terabox videos online** with ease. Our powerful Terabox downloader lets you **watch, embed, and download Terabox videos** instantly. Enjoy fast, direct access to your favorite content using our reliable **Terabox video player and link converter**.
+Discover the best way to **download and stream Terabox videos online** with ease. Our powerful Terabox downloader lets you **watch, embed, and download Terabox videos** instantly. Enjoy fast, direct access to your favorite content using our reliable **Terabox video player and link converter**.
 
 
 ## Key Features
