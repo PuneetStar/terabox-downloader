@@ -1,4 +1,4 @@
-# Terabox Video Downloader and Player Online
+# Terabox Link Downloader and Player Online
 
 **Download and Play Terabox Videos Directly**
 
